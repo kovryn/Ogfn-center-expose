@@ -3,6 +3,9 @@ exposing Andingly and Burlone and how sick they are.
 # Andigly going onto a cp site and sending it to burlone to make "funny" stickers: (Note He sent the link I was just catching him in the act!)
 <img width="915" height="683" alt="image" src="https://github.com/user-attachments/assets/a7232dd4-61f9-4a2a-8170-55368864352c" />
 
+# Proof he sent the site 
+<img width="570" height="223" alt="image" src="https://github.com/user-attachments/assets/9f7e2e41-ee8f-4bac-9886-9482893424dc" />
+
 # Dms with andigly on whatsapp:
 <img width="548" height="241" alt="image" src="https://github.com/user-attachments/assets/0a7c8bf5-ec84-4f91-b40a-733892867110" />
 
