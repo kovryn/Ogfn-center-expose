@@ -17,6 +17,7 @@ exposing Andingly and Burlone and how sick they are.
 
 # Burlone clearing his search history for the link
 <img width="582" height="176" alt="image" src="https://github.com/user-attachments/assets/b07ff4d2-9889-40e8-89a3-70d90c0ac470" />
+
 ## 5:03 i sent the image with the link 5:05 he sends a pic of "proof" 
 <img width="676" height="171" alt="image" src="https://github.com/user-attachments/assets/5acc37c5-b0b9-4797-8ff3-55e9aee93449" />
 
