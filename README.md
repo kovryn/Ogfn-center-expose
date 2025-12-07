@@ -21,6 +21,12 @@ exposing Andingly and Burlone and how sick they are.
 ## 5:03 i sent the image with the link 5:05 he sends a pic of "proof" 
 <img width="676" height="171" alt="image" src="https://github.com/user-attachments/assets/5acc37c5-b0b9-4797-8ff3-55e9aee93449" />
 
+# Another stall (5:22 i he sent the pic pls note it takes 2s to pain something)
+<img width="637" height="227" alt="image" src="https://github.com/user-attachments/assets/72432079-e7bf-4f58-af2b-54e7d33b0ccc" />
+
+# 2 minutes later he sends it
+<img width="616" height="407" alt="image" src="https://github.com/user-attachments/assets/c32cc658-f464-4b26-891e-ba2c8f20831c" />
+
 # Right after exposing this:
 <img width="422" height="432" alt="image" src="https://github.com/user-attachments/assets/ddaf810d-6cfd-4088-8276-f4a6d97d894e" />
 
