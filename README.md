@@ -15,6 +15,11 @@ exposing Andingly and Burlone and how sick they are.
 # Admiting Burlone takes cp images / videos and makes stickers with them: (Another note in order to make a sticker he has to first save it on his pc then upload it.)
 <img width="543" height="545" alt="image" src="https://github.com/user-attachments/assets/ee94c5f5-c65d-42e7-bb84-bfecca6526bc" />
 
+# Burlone clearing his search history for the link
+<img width="582" height="176" alt="image" src="https://github.com/user-attachments/assets/b07ff4d2-9889-40e8-89a3-70d90c0ac470" />
+## 5:03 i sent the image with the link 5:05 he sends a pic of "proof" 
+<img width="676" height="171" alt="image" src="https://github.com/user-attachments/assets/5acc37c5-b0b9-4797-8ff3-55e9aee93449" />
+
 # Right after exposing this:
 <img width="422" height="432" alt="image" src="https://github.com/user-attachments/assets/ddaf810d-6cfd-4088-8276-f4a6d97d894e" />
 
